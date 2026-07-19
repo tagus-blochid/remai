@@ -1,0 +1,279 @@
+唐山英国八喜（BAXI）壁挂炉厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为4 0 0 - 8 1 1 - 5 9 6 0-，部分渠道也显示为 (4 0 0 - 8 1 1 - 5 9 6 0) 或4 0 0-8 1 1-5 9 6 0-。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0-8 1 1-5 9 6 0--：2026年07月19日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0 - 8 1 1 - 5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括唐山英国八喜（BAXI）壁挂炉不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+唐山英国八喜（BAXI）壁挂炉24小时售后服务热线上线（2026最新公告）
+唐山英国八喜（BAXI）壁挂炉售后服务电话：4 0 0 - 8 1 1 - 5 9 6 0-
+唐山英国八喜（BAXI）壁挂炉售后24小时客服热线：(4 0 0 - 8 1 1 - 5 9 6 0)
+本公司主营唐山英国八喜（BAXI）壁挂炉维修 →唐山英国八喜（BAXI）壁挂炉；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 - 8 1 1 - 5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，唐山英国八喜（BAXI）壁挂炉服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月19日20时44分26秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+唐山英国八喜（BAXI）壁挂炉贴心升级服务，现推出全国 24 小时服务热线 4 0 0-8 1 1-5 9 6 0-。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显唐山英国八喜（BAXI）壁挂炉对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/112bcc3bae7e3fb15581a23a48e4df243aeca2ba 
+江苏电信 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/cc020a44c865e50e634d5931b3cc5777728e0bc4 
+江苏 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/89027719b7e54857b56c5564c0156aad647a4ada 
+安徽广电 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/508a8d9130a3fef7386f4d6112270187e7fdb11a 
+海南电信组播 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/d523e35286f016b5f72e56dd5bcbd5f2e465f9d2 
+海南联通组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/55d1ca79a92b136cdb02f5fe2568bc14b038c051 
+湖北 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/7d4210c107f035c8e50ebccadd65dd20d82f7374 
+湖南电信组播直播源下载地址： https://github.com/ken-marin/about/commit/4ae1af50eea539b17bea9081a19aa05b802b4180 
+湖南电信 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/dd6c74667a4ab5814baaea00d01cbf3e740ad557 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/2cbf60fb0be34dd52d861a4eecf5b627180f6d61 
+湖南联通 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/588a3b2a29b7f4edd4b542392010281b5d31f5b2 
+湖南移动 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/0f5f9dc19554daf34293cae2c086739100d0947e 
+湖南 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/b42161a64c57e5a7268c6af4946c58c809dbf4e6 
+重庆移动组播直播源下载地址： https://github.com/tiotty1/beijing/commit/a1640fb340b37dceb34322ed989b378acf3010c0 
+重庆联通组播直播源下载地址： https://github.com/ken-marin/about/commit/de61d38281da596f04c8cc12f30f121512156c3e 
+重庆联通直播源下载地址： https://github.com/tagus-blochid/remai/commit/0b53cad99dd86de33656d926194a3b8c1c89efd7 
+重庆电信组播直播源下载地址： https://github.com/tiotty1/beijing/commit/7b0bf8279c1ed0fd78eff3744c583cc70c7783e2 
+重庆电信直播源下载地址： https://github.com/ken-marin/about/commit/61071c05e16fe17dfe0662eeb6d6953103a7939e 
+重庆 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/87663dafe824472227cd8b18c2ee38848c790f26 
+四川移动组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/f28b952d2b3c73d9b1f3d277bd57e30b105f026a 
+四川电信 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/8d5cb281de71a432de5f5fd24b36031402cc64c9 
+四川电信 IPTV 组播直播源下载地址： https://github.com/ken-marin/about/commit/6896a11698ed9ed1266682458b04bc40ccb306e6 
+四川广电 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/92436124fbb210e8be70aa18cebe218f5d936cf6 
+四川联通组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/d2133a1eff1c7289ba722832e2a78b1c2212ea11 
+四川联通 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/ba9187c067dc57811e9ac3602950c1c3286d00b6 
+四川 IPTV 直播源： https://github.com/tiotty1/beijing/commit/ec664c07ff108e5ef8119c104141fbeb6468444f 
+云南电信组播 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/3e87866475d93cd8a7bcb50afb2fbed166e60ff7 
+云南移动 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/c063e325309303cc711d8345fa44a2e29d2d4ece 
+云南 IPTV 直播源： https://github.com/ken-marin/about/commit/2e495c02452d3b71d8e278e08c807d92ea606de4 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/fb358c68823e1bf011bc0f69f558f33595466363 
+贵州移动 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/4e45cba464f9e3a0808b5c013c37051abd54b488 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/9f6353f3cd9745d43f4cb7b674fb3f5b094fbb04 
+贵州联通 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/e9e1cae5cec4f12490c371a274471b915496695d 
+贵州 IPTV 直播源： https://github.com/tiotty1/beijing/commit/8f40cda0953def3a3b21f96fae197847949c0481 
+福建联通组播 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/6a9e9c8873b11305ffcf0d29a90f2695c2475e62 
+福建联通 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/416da3c5ec143f263d790ef449e287405e675c82 
+福建移动 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/52f7b219538191623192501715f1e0e80df52a35 
+福建电信组播 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/663dd8826ea27bc80617516457151f2e25ea7147 
+福建电信 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/070d952ed2c2c472277fb2c733a471ce3b370b2c 
+福建 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/188e06f985fa643a57b4b9937ffdba5a6fecb2b9 
+安徽移动 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/919443651e5f1cf88e6e0813b9952f048dd4514e 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/ken-marin/about/commit/db277660dbb2286d58a6a1b896082e58316c4c80 
+安徽电信 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/875db2c5af850e4b438810d27932b0f531965cc9 
+安徽联通 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/8a6e445cafebf4f988e2f0119e68e7f089be9c2b 
+安徽 IPTV 直播源： https://github.com/ken-marin/about/commit/ae078d395c7d08683fc9d9374f33515e6b7ba933 
+陕西地方台直播源下载地址： https://github.com/sumanpave/xinwen/commit/faba9078020ec9e7728d958784ebb5809c3581e3 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/00df59ec8bf61f3bd7b40909205be18436e13b8a 
+陕西电信 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/a2e0b30b9bfbf7f63faba0c16560cdf0bb383e4d 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/47e3e1dbf1dba778423116bf2ad72389614566b2 
+陕西移动 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/ea1135ae405ace4a903722c133976e16d6bd50cb 
+陕西 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/2d8c2e5a3ec006104f63c748bdfe93b7c5734fc0 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/74db717f0c517227c00f82f2015cba2725bae276 
+甘肃移动 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/d02a9dc4cc5b37b53b6c0b47fa2c9a4e445f05f4 
+甘肃 IPTV 直播源： https://github.com/ken-marin/about/commit/bee2aba7ff79f56fb4baed4bedf6238547455788 
+山西移动组播 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/5452e892eb8e801aa2b38b35e05f9327ef1a4b34 
+山西联通组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/a77c0465810566206c6a9a41735b0df023745b41 
+山西联通 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/3e1eb95f3d035de2496cd093d9bc690492d0841f 
+山西 IPTV 直播源： https://github.com/ken-marin/about/commit/828956ae577d276451df25deb4d91df6da090d00 
+天津电信组播直播源下载地址： https://github.com/tagus-blochid/remai/commit/402924843392ee476a6fe853471a54457670322e 
+天津联通组播直播源下载地址： https://github.com/sumanpave/xinwen/commit/e6cb2a72ff145278e97edd9039b8bdb6ddccf915 
+天津 IPTV 直播源： https://github.com/tiotty1/beijing/commit/21d12eddaff5c0bb5d3d688e99a58358cb1538c0 
+上海移动直播源下载地址： https://github.com/ken-marin/about/commit/1d72b01a3f7fb2e10a4af132c22a3b7724ac320f 
+上海联通组播直播源下载地址： https://github.com/tagus-blochid/remai/commit/08ce2da0b92abc7fc04f75a32c8293a833ab606a 
+上海联通直播源下载地址： https://github.com/sumanpave/xinwen/commit/1853b1deedcc323019f3e85f6ade43a2e9b68cb3 
+上海电信组播直播源下载地址： https://github.com/tiotty1/beijing/commit/8300c1ffc82b06b037b247f70f5f7c55443bfcc7 
+上海电信直播源下载地址： https://github.com/ken-marin/about/commit/98385ecd58b9fc2ad08b8fd98228ce7072cd94dd 
+上海 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/7c174aa2907b93fe41021aaa17f758a0030523d9 
+北京移动 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/58ab948cb3b40b79f2572c1066af159031a4bb9a 
+北京移动组播直播源下载地址： https://github.com/tiotty1/beijing/commit/f810ad043b3ff5e0a9fdaa9b911ce93ca67c3830 
+北京电信组播 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/7d89e4fd7cbe40bbe700ff4b3c459ad405126b20 
+北京联通组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/6ebee7c0232419df317e64c27229688c7705aa95 
+北京联通 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/fe76a7835b4d03a735566ce1eb74f66128113796 
+北京 IPTV 直播源： https://github.com/tiotty1/beijing/commit/dfadc2e6903f3d61090ccdfbe34787ba493e03d4 
+部分地区的移动可全网通用： https://github.com/tagus-blochid/remai/commit/42d23d9932e0a231b1dd1bebe4c3932e4ebbe040 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/ken-marin/about/commit/a49bd89fac74a66352cee85df22d056879eb87db 
+广播电台下载地址： https://github.com/sumanpave/xinwen/commit/919aeb544b03a839ec74857a371f1f728bdcd754 
+国内景区直播源下载地址： https://github.com/tiotty1/beijing/commit/5525670683ebb6b96594f2528ce76e3ff2323a40 
+轮播华数黑莓下载地址： https://github.com/tagus-blochid/remai/commit/4cebea632975878c7741cacb1c483382b7248c8d 
+台湾香港澳门电视台直播源下载地址： https://github.com/ken-marin/about/commit/d8be2e144bc05b30647279b3288ee7e1edebdf19 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/sumanpave/xinwen/commit/4f857825173817695052e4392174331c4e2f6bce 
+国外电视台直播源下载地址： https://github.com/tiotty1/beijing/commit/41989c9940151e426547c2baffc37dd7cbf263b4 
+卫视地方台安徽农大下载地址： https://github.com/tagus-blochid/remai/commit/a4b749ea9ae07783076e9678396e9243aaa244a2 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/ken-marin/about/commit/5c1e718542841d672ef203b4993e8313748ec6ee 
+卫视上海源下载地址： https://github.com/sumanpave/xinwen/commit/a9d2c21741728d27dbe9f2de7a41637121ed1799 
+卫视重庆广电 下载地址： https://github.com/tiotty1/beijing/commit/a40858efd727196a887da4bee70e5dbb3d09c363 
+卫视百视 TV 下载地址： https://github.com/ken-marin/about/commit/a01578622b108c83640cbbf9e68790abda115439 
+移动 IPv6 直播源下载地址： https://github.com/tagus-blochid/remai/commit/6d95c939b60d757a2ca33a663347adfe2794cd3c 
+国内电视台 IPv6 直播源下载地址： https://github.com/sumanpave/xinwen/commit/cbae749971dba5cc2a864b80ce7e6486b8723798 
+各大卫视、上千个地方台： https://github.com/tiotty1/beijing/commit/6b0494ae36fffbcc0aeb83009e5e9bf1bca0cd03 
+国内电视台直播源下载地址： https://github.com/ken-marin/about/commit/b1fb3c659df3a71f37d1feac90d3cf4d82f97853 
+全国可用直播源： https://github.com/sumanpave/xinwen/commit/d180c4cdf750ed084faedd772a49e3e99200efd7 
+包括完整内容所有已知频道： https://github.com/tagus-blochid/remai/commit/644e670db5df2ae6c914a36ff229bd668ede96e8 
+除成人内容以外的已知频道： https://github.com/tiotty1/beijing/commit/593d9378cdfbf22dc94830d2da7f332617aec097 
+收集来自世界各地公开可用的 IPTV： https://github.com/sumanpave/xinwen/commit/7c5fa0f87461257a37b3c0be023ea31f50f34ac9 
+稳定地址： https://github.com/ken-marin/about/commit/a3f97e0b09f192277e9c9b323414409b1ccd2976 
+2026-07-19 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/tagus-blochid/remai/commit/f3c7ab3c3101246a617a18301aaae4b9e6a32631 
+2026-07-19 更新 IPTV 工具： https://github.com/tiotty1/beijing/commit/a468db237a9935c2c9791ab5c5fe4c61b18d0749 
+2026-07-19 更新世界各地 IPTV 频道： https://github.com/ken-marin/about/commit/e10c1943bb043c972a259da77d3b02c5d2935aa9 
+2026-07-19 更新全国可用直播源： https://github.com/sumanpave/xinwen/commit/103fdc589f68bed0eb78d55d2c4709bcbcd6f259 
+新增各地运营商的 IPTV 地址： https://github.com/tagus-blochid/remai/commit/95d32dca2d5c2ddb348ab60a55dee525b31e8415 
+插件推荐： https://github.com/tiotty1/beijing/commit/448ff369308d2eaefe83551990e17ba053e4bcdf 
+视频教程增加： https://github.com/ken-marin/about/commit/25e29f59b1c418b983a1cf459313605c78a9dbde 
+咪咕源失效： https://github.com/sumanpave/xinwen/commit/09c53dd3cd1e68ac4f55bd5f7c84978a5b62ff19 
+2026-07-19 更新各地运营商 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/5c37773a98c955bca286585e237dc1c6db4d6b33 
+2026-07-19 更新台湾香港海外直播源： https://github.com/tiotty1/beijing/commit/eddf0e03db2ad2421f5f7ba82c13824698304590 
+新增辽宁广电直播源： https://github.com/ken-marin/about/commit/65bc2ded08d52209a9350dcd5106fd08660298b5 
+新增江西广电直播源： https://github.com/sumanpave/xinwen/commit/53576d0425fe575302f20f4c53ccfaa2c3976905 
+新增湖北广电直播源： https://github.com/tagus-blochid/remai/commit/e80c86b5535aa657956be098ad0bf5cfb91ede1c 
+新增中国广电 cctv + 卫视直播源： https://github.com/tiotty1/beijing/commit/c9a2a8269b40a85104ca7ddc63918ff0b1e8c862 
+新增辽宁电信 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/178b182b2896c0013440342b1f740c38c0be1393 
+2026-07-19 更新台湾香港海外直播源： https://github.com/tagus-blochid/remai/commit/d1d25e6f375a85717505d5d6e6fce6df189ffd8d 
+新增辽宁移动直播源： https://github.com/tiotty1/beijing/commit/90e5ee480afedc3741402070c35655d59514e710 
+新增浙江杭州华数 IPTV 直播源： https://github.com/ken-marin/about/commit/5c6afdd2e96a455110b57e6ef6d09dda7abe0b24 
+新增广东联通 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/818ffae2ec3fda1870206919edc1713339294af3 
+新增四川广电 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/e93014b340ad01f982201deb6c96140a95b219fe 
+新增云南电信 IPTV 直播源： https://github.com/ken-marin/about/commit/afe31bbbb732ba43a8f57dcea4009c67a163ec17 
+2026-07-19 更新国内电视台直播源： https://github.com/tiotty1/beijing/commit/46a8516c24bb76e33c1680352fe625c17e41a46c 
+新增福建电信 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/89de5a1f98fd1f99fc7a1d2675870e2c0afb1b7c 
+新增天途云 CCTV + 卫视： https://github.com/sumanpave/xinwen/commit/9bb67cf548e88de35b9176e4957338e628b875ac 
+新增腾讯云 CCTV + 卫视： https://github.com/ken-marin/about/commit/dfcc62b40b929436c3de5ac1ce910280a7d2ccfc 
+新增 CCTV 付费频道直播源： https://github.com/tiotty1/beijing/commit/bcce1ea78b6026e6db8c7587628a823b6a506ad8 
+新增广播电台： https://github.com/sumanpave/xinwen/commit/ec3091fa71415e3ebb6636227a2de028132a0c2c 
+2026-07-19 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/tagus-blochid/remai/commit/8d4e8584d449cb7093ed86f7635969d480b14bd8 
+2026-07-19 更新 台湾香港海外直播源： https://github.com/ken-marin/about/commit/2e71265ea07ddb6ef7338fa5d2edc5bed87c3a72 
+2026-07-19 更新 国内电视台直播源： https://github.com/sumanpave/xinwen/commit/9adc37dba90f3a79241d26be34451f466c776814 
+国家直播源： https://github.com/tiotty1/beijing/commit/71de903f7246fa3615ff0cf1e358db66f4f5d478 
+直播源： https://github.com/tagus-blochid/remai/commit/01c86bf22b930f1143730f8f5c6f162d1bf7ec6e 
+影视剧场： https://github.com/ken-marin/about/commit/09581dbe8b7a05a532d2a0fffc32e6e70769a572 
+台湾香港澳门： https://github.com/sumanpave/xinwen/commit/36a2a96a00735296f916dd7e1ed1aa61b2641214 
+国外电视台： https://github.com/tiotty1/beijing/commit/d3fd0fd7d298f6b1cd0028ac94bbdd361d4ee8ef 
+国内电视台： https://github.com/ken-marin/about/commit/3e5b00af59de69e260906846d86ec520e34dd6fd 
+更早期 2026-07-19 更新： https://github.com/tagus-blochid/remai/commit/9a71eb9c58121d2cc6c558c308ef1fcbec33be30 
+各地运营商 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/bf4c22a0d6fe5ecff0038f4ed4b3a55bfb97ec43 
+全国可用直播源： https://github.com/tagus-blochid/remai/commit/98c79b423f87b9df00babc2a8c9fa549559903df 
+2026-07-19 更新： https://github.com/ken-marin/about/commit/c6756d93747d459818901b5f272a7e2b2851d635 
+赞助者： https://github.com/tiotty1/beijing/commit/5ebebd52fd5958d23e0dd2d81b629b1d430b7ffc 
+文章： https://github.com/sumanpave/xinwen/commit/1961f47af1cb0ef940cc33faeef682e023d20ba4 
+视频教程： https://github.com/ken-marin/about/commit/c160c15e98e61842423f9d8ff595f8dc15050472 
+插件： https://github.com/tagus-blochid/remai/commit/b7c5b905d7ff91c949bfe33694c21baf89de8a87 
+工具： https://github.com/tiotty1/beijing/commit/84282bb7959e1bf26e7f6b6084f81936944229a6 
+URL： https://github.com/sumanpave/xinwen/commit/1c374d2bcb17aff35a3dabd79e4b15e76fb675f4 
+目录： https://github.com/ken-marin/about/commit/ad496ba854137578d8d2f280477944641aead152 
+喀麦隆直播电视频道： https://github.com/tagus-blochid/remai/commit/3ddc578c4578c76d3e590eaa372f43d7fc09c578 
+阿富汗直播电视频道： https://github.com/sumanpave/xinwen/commit/56282ea0dca44bf3b38b4711d70382ff27729fd1 
+海地的直播频道： https://github.com/tiotty1/beijing/commit/fbf3b9efeef89da387169a85fe435acb0b768fd1 
+高棉直播和泰国电视，电影和电视剧： https://github.com/ken-marin/about/commit/ac378003edb8e1595b0eb6d4bcb2c1d50acf0570 
+厄瓜多尔直播频道： https://github.com/sumanpave/xinwen/commit/842a5bffbd1226abe4462286adb088b9155c8e66 
+玻利维亚直播频道： https://github.com/tagus-blochid/remai/commit/61fb5805736cc1899bab9cde15f84f5fb32b7b4d 
+萨尔瓦多直播频道： https://github.com/ken-marin/about/commit/04652e16501c5f4140b4822575add3db1cd306dd 
+危地马拉直播频道： https://github.com/tiotty1/beijing/commit/87f007bf9bec7e28f0d0bff5ab7ca601180b553b 
+洪都拉斯直播频道： https://github.com/tagus-blochid/remai/commit/77047e69b8048cefe25e514fcb73c192c76352be 
+多米尼加共和国直播频道： https://github.com/tiotty1/beijing/commit/df3134d58d3a1ab2742b863b60408c36bc31ada0 
+哥斯达黎加直播频道： https://github.com/ken-marin/about/commit/dd102dca89b69bbae5e624105b1dc7aa0ea7f867 
+来自世界各地的个电视频道和个摄像机： https://github.com/sumanpave/xinwen/commit/02e9ca519ada09b844c3259a6ce157fb09e6dd56 
+免费数据库： https://github.com/sumanpave/xinwen/commit/ef038bb1a462e6f8b103020fb5634c1c0661c47e 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/tagus-blochid/remai/commit/0d7496c3599aa76e12d361421de3fae4c7d8f55c 
+超过个国家地区的个高清频道和： https://github.com/tiotty1/beijing/commit/13be2378b6eb6d5ccddf7131e0e8ccfc4bf2528a 
+超过个直播电视频道影视节目： https://github.com/ken-marin/about/commit/cc3e5538ba9fbb4575dc7751bc08a422ecc3f7ac 
+提供商列表： https://github.com/tagus-blochid/remai/commit/5aedd1f64824284a6020ea0f5196eba4fcb40a29 
+提供者： https://github.com/sumanpave/xinwen/commit/09f3bd9606deecd67b7bce969a97a242f982d933 
+客户端服务器媒体播放器： https://github.com/ken-marin/about/commit/11e46f485e2c8acc79e35a75dbc97bcea3e4434d 
+支持播放列表文件： https://github.com/tiotty1/beijing/commit/080776a6060cd3cf3218434f87b9401dd1c09a71 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/sumanpave/xinwen/commit/e55fefbabf4c0c3a7b98f5b28b970fd375af2b6f 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/tagus-blochid/remai/commit/65cd869e158ca882a9ffe8cb2d89cb427c7be503 
+点 即可： https://github.com/ken-marin/about/commit/6872d75b0bce2debc5ad2969dfed1f7f0a9ff9b2 
+第三行不用管： https://github.com/sumanpave/xinwen/commit/dc7881f7f9314ef4a7900aab32b1d40ebc6f3b5d 
+第二行输入上面给你的地址： https://github.com/tagus-blochid/remai/commit/b964552f75053786f7702898a21ccf6322479d34 
+第一行随意输入一个名字： https://github.com/tiotty1/beijing/commit/fe70974124529ed12628b51340b226a82cd6d5e4 
+选择 远程播放列表文件： https://github.com/ken-marin/about/commit/35274a699fc1e3f9792a2ae7d3875bd42ba969a0 
+打开 点击 号： https://github.com/tagus-blochid/remai/commit/a57a410be305c8236df8f793a9bd020c647af778 
+食用指南： https://github.com/tiotty1/beijing/commit/cfd9cd864c8c12cc0c1e74f655463e6f20d4a614 
+适用于 macOS 的现代媒体播放器： https://github.com/sumanpave/xinwen/commit/506e88d413d42ed1d86aeabb77586ab59860258a 
+直播电视和广播客户端插件： https://github.com/ken-marin/about/commit/2b218735c55a160b3d5247fef46d8068b1ad36b4 
+具有库支持的免费跨平台媒体播放器： https://github.com/tagus-blochid/remai/commit/c4772916a17ce57d603959c6067a6d7fb3c5e538 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/tiotty1/beijing/commit/481aff1b1754354d34ae4a7337e698777a46399d 
+支持 IPTV 流的应用程序： https://github.com/sumanpave/xinwen/commit/cced3f0d7a6c625270fe465fda3a53f19a53b259 
+工具： https://github.com/ken-marin/about/commit/b80d3c5c6b30525304e604e82cda415e2a18f858 
+轮播华数求索爱奇艺 2026-07-19 更新： https://github.com/tiotty1/beijing/commit/2e863d71b3b812b772bcec14e0d50e5cf650bd8d 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/tagus-blochid/remai/commit/e994966870ce0119347b2b27ea61fa6160b302ea 
+台湾香港海外直播源 2026-07-19 更新： https://github.com/sumanpave/xinwen/commit/67fe613366236e0de29919270d50873877e78473 
+各大卫视、上千个地方台： https://github.com/ken-marin/about/commit/17e9ba2872616a92ae255dcccfff02a2dd5f90bd 
+国内电视台直播源 2026-07-19 更新： https://github.com/tagus-blochid/remai/commit/7804bac648d172eb349093179d50e2e41ec99200 
+卫视腾讯云： https://github.com/tiotty1/beijing/commit/b7a658a1fa9c8e65b9492a65aa1cfe4238553e15 
+卫视平顶山学院教育网： https://github.com/sumanpave/xinwen/commit/dfb014068d69a896002e4787f73b2af52900bcd5 
+卫视天途云： https://github.com/ken-marin/about/commit/9a8841eab2df5252fc4856ef9b881d77990a0ee9 
+卫视地方台安徽农大： https://github.com/tagus-blochid/remai/commit/6d5bb8a5221be82196124e18dbdb24cca6aed511 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/tiotty1/beijing/commit/2c7a2ed557745d0938a8133a6972576c356de13d 
+央视卫视广西移动直播源： https://github.com/sumanpave/xinwen/commit/15da0b18e2da39a7aa8c67daea683032aa7d7da9 
+付费频道直播源： https://github.com/ken-marin/about/commit/bb4d992852b7d3cc9f65f5205851a4ebedd1322d 
+国家直播源多个全部有效： https://github.com/tiotty1/beijing/commit/2ae28c1f255d6f97e213290a75bff4f30f0470ff 
+直播源全部有效： https://github.com/tagus-blochid/remai/commit/719e0cb1dac78cf3f4b7db85bf722416cfd2ebf1 
+全部有效： https://github.com/sumanpave/xinwen/commit/95dd7448792ad3b753eebf99740a9df63b9ffed1 
+直播源全部有效老电脑别用： https://github.com/ken-marin/about/commit/b39195b567b253a5ac35a4beed79594f34c0227b 
+影视剧场全部流畅： https://github.com/tagus-blochid/remai/commit/c11a5083a67b9fa39476fae8aab5aca61667dff5 
+全部可用： https://github.com/tiotty1/beijing/commit/0f9e01a5f7ffe930c1983a0f21fbd7d3d834393f 
+我的播放源： https://github.com/sumanpave/xinwen/commit/b3f150032dd997a3cb1a3e077f61c246d60fe828 
+其他直播源 不确定有效性： https://github.com/ken-marin/about/commit/42b7825fcb0c4e4dd0e3aef84da4718ccb16dcbb 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/1ee4fce6f859328c45f3e24c0eb193d7507e2072 
+新疆 IPTV 直播源： https://github.com/tiotty1/beijing/commit/edf35a874f0ac335711fd2f25adb2b1131347165 
+内蒙古联通 udp 组播下载地址： https://github.com/sumanpave/xinwen/commit/253cd24ace1f4567e0b172094ad01ce9200d983f 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/2bad88d9ae6e39df0865a67f2236c7e4043d368c 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/7ea4951d77a8bc9851732846e777cb59ba364cab 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/298cb34db2335e55236a9cfcfb86f4091babc71e 
+内蒙古 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/9e03f4106fec57a5fef72837073a1f385644d7e6 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/36466dedd0a8907f98d642544a29500aac002b91 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/e0338a18cdea33d599ee7b1ef6645e2dcad30caa 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/f86f02aa497fece4562aa472b5052b891608a204 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/dee5772a2a6fa8fc5d93c960fb3c3b89e6886e21 
+黑龙江 IPTV 直播源： https://github.com/tagus-blochid/remai/commit/63119b813059b544c65096ee6877079a80d4be82 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/d0eac081b287dbd5d736a6c1b015c74afe941301 
+吉林 IPTV 直播源： https://github.com/tiotty1/beijing/commit/9746278f1b9e15d0a6318074508912851a8ce18f 
+辽宁移动直播源下载地址： https://github.com/tagus-blochid/remai/commit/5cc692e61877bf61eba7fb36e3a1db3ebf417931 
+辽宁电信 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/37f1142ca45903c97b77c80b0f6d1ae404f7bde7 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/ken-marin/about/commit/dbe166505d5d62a7eb6e34e3ad4331e6dc424f5f 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/e76d0cf5f71d0ee288f37bad26223d5d0353c6cc 
+辽宁联通 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/8f98ee3ca94055b17597f51d5863641666f30424 
+辽宁 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/a973703754a969aa5b929dc755ef76d6fe660490 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/tiotty1/beijing/commit/c3b4e0039924b566755e7bf3d15cd18c7f3dadef 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/ken-marin/about/commit/31bf25329dffcf6572f3e1830f34dd4f3c0c7891 
+浙江联通 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/721895aaa58ec3d8277770bac89958a6817e9be2 
+浙江移动 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/505758acc59e6cf9fd84126cd8b6d48d5d2bec6d 
+浙江 IPTV 直播源： https://github.com/ken-marin/about/commit/77f5b3e5c5feb282c95f488e0eda55c09163a6bf 
+江西联通 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/c79adb633abcb180951663acbf644370978b99e3 
+江西电信组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/b8ecdf02a135495f28c417285d074f1d4221e0c5 
+江西电信 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/0ecafcac1c190f8affc51c719af7f8c77b038996 
+江西移动 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/bab6a9f39db91ae5fc0164ab72ebcbc852ff3770 
+江西 IPTV 直播源： https://github.com/ken-marin/about/commit/4918b0b587e8d83d5b01b69df4c4b6ef0547d3ff 
+江苏移动 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/3a11658216920a7796e816ab7f5208b44c9f45ac 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/129237a4dd30f68f5cc06a05792bfb2f0c33d2e8 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/8547a758befbe466f8a254205648ded5bce19822 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/6fdc4aaf2dd28e20a060570b4f2c0c80e8011089 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/112d6e465d7026ffdc6fda73ad99378272bcc6c5 
+江苏电信 IPTV 直播源下载地址： https://github.com/ken-marin/about/commit/91823c98281d27b8f41548d3079ec48761603db8 
+江苏 IPTV 直播源： https://github.com/sumanpave/xinwen/commit/371ab820a24d7cb4f01e552a51ada7e03a231a55 
+安徽广电 IPTV 直播源下载地址： https://github.com/tiotty1/beijing/commit/5ed65e67977cd2d55e59d5668898d710f67a9677 
+海南电信组播 IPTV 直播源下载地址： https://github.com/tagus-blochid/remai/commit/fbc770e78926e2d33b5da466ba71b453ae506c5c 
+海南联通组播 IPTV 直播源下载地址： https://github.com/sumanpave/xinwen/commit/1c91da508edc4258cc32b89816293c262cd5c78e 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月19日20时44分26秒
+来源：https://github.com/ken-marin/about/commit/94be628ead7bee25d31b29d17fe959bac841e35a 
+来源：https://github.com/tiotty1/beijing/commit/54034e558b59f8b2cd5e57305e3f8fb4ac3c5221 
+来源：https://github.com/tagus-blochid/remai/commit/55a6a34ee3217a4296d1ce8e4ba0c5b858daf8c9 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月19日20时44分26秒
